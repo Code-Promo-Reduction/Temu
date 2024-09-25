@@ -8,7 +8,7 @@ Temu vous permet d’économiser encore plus avec un **lot de coupons** exclusif
 1. **Téléchargez** l’application Temu sur votre téléphone (iOS ou Android) en [cliquant ici](https://temu.to/k/u92rq2witbj).
 2. Inscrivez-vous en quelques minutes et profitez d’un lot de coupons Temu avec une réduction jusqu’à **100 € sur vos premières commandes** !
 
-## Code promo ➥[Code PROMO 100€](https://temu.to/k/u92rq2witbj)
+## Code promo ➥ [Code PROMO 100€](https://temu.to/k/u92rq2witbj)
 
 ---
 
